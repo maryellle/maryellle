@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @maryellle
+- 👀 I’m interested in aprender coisas novas.
+- 🌱 I’m currently learning a criar sites.
+- 💞️ I’m looking to collaborate on ajudare compreender melhor meus companheiros.
+- 📫 How to reach me mariele.luiza.santos@escola.pr.gov.br
